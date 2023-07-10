@@ -2,7 +2,7 @@
 - 👀 I’m interested in music
 - 🌱 I’m currently learning music
 - 💞️ I’m looking to collaborate on music
-- 📫 How to reach me nun 0f yall damn bussnis
+- 📫 How to reach me nun 0f yall damn bussiness
 
 <!---
 LilCupcake00/LilCupcake00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
